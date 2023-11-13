@@ -1,1 +1,1 @@
-✨ **[Main Account](https://github.com/lilBunnyRabbit)** ✨
+Main account ✨ **[@lilBunnyRabbit](https://github.com/lilBunnyRabbit)** ✨
